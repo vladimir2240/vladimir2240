@@ -1,7 +1,7 @@
 ### Hi, `stranger`!
 
 At the moment I am actively working on a large-scale update of my Github profile.
-Please, give me some time to finish and you will be shocked!
+Please, give me some time to finish and you will be surprised!
 
 
 <!---
